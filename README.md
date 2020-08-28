@@ -1,1 +1,1 @@
-# Interactive Dashboard Is what every business needs!
+# An Interactive Dashboard Is what every business needs!
